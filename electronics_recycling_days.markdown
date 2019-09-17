@@ -15,6 +15,7 @@ Evansville, IN  47708
 Jean Carlson, INTERIM DIRECTOR    
 
 BOARD OF DIRECTORS
+
         Missy Mosby, Chair
 
         Mayor Lloyd Winnecke
